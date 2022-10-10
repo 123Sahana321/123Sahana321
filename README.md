@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning: Python
 - 💞️ I’m looking to collaborate on: Apps
 - 📫 How to reach me: 1-66 Vemuluru post ,Kovvur Mandal ,West Godavari. Andhra Pradesh. West Godavari - 534350 IN Locality : Contact Number : 9912727747
+- 📧 Dont contact to the number Mail to this email: rsahana987@gmail.com
 
 <!---
 123Sahana321/123Sahana321 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
